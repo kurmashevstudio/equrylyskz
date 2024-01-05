@@ -1,0 +1,2 @@
+# equrylyskz
+eQurylys.kz
